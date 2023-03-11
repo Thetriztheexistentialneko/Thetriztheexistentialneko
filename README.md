@@ -1,6 +1,9 @@
 - @Thetriztheexistentialneko
-- nonbinary trans woman
+- trans woman
 - she/they/its
+- Probably therian or otherkin
+- hobbiest source mapper
+- shitty game dev
 
 <!---
 likes
